@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAIJ950626HCLZBN01
+VAIJ950626HCLZBN01
